@@ -1,1 +1,0 @@
-# Dynamicmaxx-pages
